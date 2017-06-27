@@ -1,1 +1,0 @@
-# elnopintan.github.io
